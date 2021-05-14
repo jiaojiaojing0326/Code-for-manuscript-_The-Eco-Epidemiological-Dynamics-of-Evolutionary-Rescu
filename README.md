@@ -1,0 +1,1 @@
+# Code-for-manuscript-_The-Eco-Epidemiological-Dynamics-of-Evolutionary-Rescu
